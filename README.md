@@ -1,1 +1,3 @@
-# best-brake-pads
+# Best Brake Pads
+For many drivers, especially those who value high-performance, the choice between ceramic vs. semi metallic brake pads is easy. Performance-driven drivers tend to prefer the metallic brake pads because they offer improved braking performance in a much more comprehensive range of temperatures and conditions.
+Ceramic [best brake pads](https://nrsbrakes.com/) have excellent stopping power and disperse heat well. Ideal for most normal driving applications, they produce very little dust or noise and are long lasting. Many foreign and domestic vehicles are equipped with ceramic brake pad formulations from the factory.
